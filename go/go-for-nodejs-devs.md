@@ -4894,16 +4894,6 @@ Output
 **[⬆ back to top](#contents)**
 -->
 
-## Contributing
-
-Pull requests are welcome!
-
-Please submit a pull request for new interesting additions or for general content fixes.
-
-If updating code, update both the README and the code in the [examples](examples/) folder.
-
 ## License
 
 Released under the [MIT](./LICENSE) license.
-
-© [Miguel Mota](https://github.com/miguelmota)
