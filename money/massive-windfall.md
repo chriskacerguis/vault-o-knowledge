@@ -2,7 +2,7 @@
 
 From: https://www.reddit.com/r/AskReddit/comments/24vzgl/comment/chba4bf/
 
-Tweaked a bit for a more generic "large money windfall" vs "lottery", and adjusted the language as this is not a "reddit" comment thread anymore.
+Note: Tweaked a bit for a more generic "large money windfall" vs "lottery", and adjusted the language as this is not a "reddit" comment thread anymore.
 
 Congratulations! You just [got a large money windfall]! That's great.
 
