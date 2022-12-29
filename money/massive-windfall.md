@@ -72,31 +72,19 @@ Wrong.
 
 Nearly one third of multi-million dollar jackpot winners eventually declare bankruptcy. Some end up worse. To give you just a taste of the possibilities, consider the fates of:
 
-Billie Bob Harrell, Jr.: $31 million. Texas, 1997. As of 1999: Committed suicide in the wake of incessant requests for money from friends and family. “Winning the lottery is the worst thing that ever happened to me.
-
-William âBudâ Post: $16.2 million. Pennsylvania. 1988. In 1989: Brother hires a contract murderer to kill him and his sixth wife. Landlady sued for portion of the jackpot. Convicted of assault for firing a gun at a debt collector. Declared bankruptcy. Dead in 2006.
-
-Evelyn Adams: $5.4 million (won TWICE 1985, 1986). As of 2001: Poor and living in a trailer gave away and gambled most of her fortune.
-
-Suzanne Mullins: $4.2 million. Virginia. 1993. As of 2004: No assets left.
-
-Shefik Tallmadge: $6.7 million. Arizona. 1988. As of 2005: Declared bankruptcy.
-
-Thomas Strong: $3 million. Texas. 1993. As of 2006: Died in a shoot-out with police.
-
-Victoria Zell: $11 million. 2001. Minnesota. As of 2006: Broke. Serving seven year sentence for vehicular manslaughter.
-
-Karen Cohen: $1 million. Illinois. 1984. As of 2000: Filed for bankruptcy. As of 2006: Sentenced to 22 months for lying to federal bankruptcy court.
-
-Jeffrey Dampier: $20 million. Illinois. 1996. As of 2006: Kidnapped and murdered by own sister-in-law.
-
-Ed Gildein: $8.8 million. Texas. 1993. As of 2003: Dead. Wife saddled with his debts. As of 2005: Wife sued by her own daughter who claimed that she was taking money from a trust fund and squandering cash in Las Vegas.
-
-Willie Hurt: $3.1 million. Michigan. 1989. As of 1991: Addicted to cocaine. Divorced. Broke. Indicted for murder.
-
-Michael Klingebiel: $2 million. As of 1998 sued by own mother claiming he failed to share the jackpot with her.
-
-Janite Lee: $18 million. 1993. Missouri. As of 2001: Filed for bankruptcy with $700 in assets.
+- **Billie Bob Harrell, Jr.:** $31 million. Texas, 1997. As of 1999: Committed suicide in the wake of incessant requests for money from friends and family. “Winning the lottery is the worst thing that ever happened to me.
+- **William Buda Post:** $16.2 million. Pennsylvania. 1988. In 1989: Brother hires a contract murderer to kill him and his sixth wife. Landlady sued for portion of the jackpot. Convicted of assault for firing a gun at a debt collector. Declared bankruptcy. Dead in 2006.
+- **Evelyn Adams:** $5.4 million (won TWICE 1985, 1986). As of 2001: Poor and living in a trailer gave away and gambled most of her fortune.
+- **Suzanne Mullins:** $4.2 million. Virginia. 1993. As of 2004: No assets left.
+- **Shefik Tallmadge:** $6.7 million. Arizona. 1988. As of 2005: Declared bankruptcy.
+- **Thomas Strong:** $3 million. Texas. 1993. As of 2006: Died in a shoot-out with police.
+- **Victoria Zell:** $11 million. 2001. Minnesota. As of 2006: Broke. Serving seven year sentence for vehicular manslaughter.
+- **Karen Cohen:** $1 million. Illinois. 1984. As of 2000: Filed for bankruptcy. As of 2006: Sentenced to 22 months for lying to federal bankruptcy court.
+- **Jeffrey Dampier:** $20 million. Illinois. 1996. As of 2006: Kidnapped and murdered by own sister-in-law.
+- **Ed Gildein:** $8.8 million. Texas. 1993. As of 2003: Dead. Wife saddled with his debts. As of 2005: Wife sued by her own daughter who claimed that she was taking money from a trust fund and squandering cash in Las Vegas.
+- **Willie Hurt:** $3.1 million. Michigan. 1989. As of 1991: Addicted to cocaine. Divorced. Broke. Indicted for murder.
+- **Michael Klingebiel:** $2 million. As of 1998 sued by own mother claiming he failed to share the jackpot with her.
+- **Janite Lee:** $18 million. 1993. Missouri. As of 2001: Filed for bankruptcy with $700 in assets.
 
 So, what the hell DO you do if you are unlucky enough to win the lottery?
 
@@ -155,5 +143,3 @@ Here is where things start to get less clear. Personally, I think you should dum
 **7. So you have put a safety net in place.**
 
 You have provided for your family beyond your wildest dreams. And you still have $36.4 million in "cash." You know you will be getting $638,400 per year unless the capital building is burning, you don't ever need to give anyone you care about cash, since they are provided for generously and responsibly (and can't blow it in Vegas) and you have a HUGE nest egg that is growing at market rates. (Given the recent dip, you'll be buying in at great prices for the market). What now? Whatever you want. Go ahead and burn through $36.4 million in hookers and blow if you want. You've got more security than 99% of the country. A lot of it is in trusts so even if you are sued your family will live well, and progress across generations. If your lawyer is worth his salt (I bet he is) then you will be insulated from most lawsuits anyhow. Buy a nice house or two, make sure they aren't stupid investments though. Go ahead and be an angel investor and fund some startups, but REFUSE to do it for anyone you know. (Friends and money, oil and water - Michael Corleone) Play. Have fun. You earned it by putting together the shoe sizes of your whole family on one ticket and winning the jackpot.
-
-
