@@ -1,4 +1,4 @@
-Recently, I was honored to be selected as a judge at a chili cook-off. The original person called in sick at the last moment and I happened to be standing there at the judge’s table, asking for directions to the Coors Light truck, when the call came in… I was assured by the other two judges (Native New Mexicans) that the chili wouldn’t be all that spicy; and, besides, they told me I could have free beer during the tasting, so I accepted and became Judge 3.”
+Recently, I was honored to be selected as a judge at a chili cook-off. The original person called in sick at the last moment and I happened to be standing there at the judge’s table, asking for directions to the Coors Light truck, when the call came in… I was assured by the other two judges (Native Texans) that the chili wouldn’t be all that spicy; and, besides, they told me I could have free beer during the tasting, so I accepted and became Judge 3.
 
 Here are the scorecard notes from the event:
 
