@@ -114,7 +114,7 @@ Answers to this culture interview question will reveal more about your candidate
 
 This inspiration may differ for each candidate depending on their field of expertise. For example, candidates applying for a technology role are likely to be inspired by different leaders than applicants seeking a teaching job. The choice they make will be revealing, so this can be an insightful question.
 
-17. Do you work well with employees with less experience than you?
+### 17. Do you work well with employees with less experience than you?
 
 Asking this interview question can determine whether your applicants can collaborate with less-experienced team members, and it may help you evaluate their communication skills based on how they interact with their teams.
 
